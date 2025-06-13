@@ -1,2 +1,2 @@
-# The-Peoples-Garden.org
+# The-Peoples-Garden
 Afro-Latino community garden in Bushwick Brooklyn New York
